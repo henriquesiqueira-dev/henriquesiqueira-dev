@@ -18,7 +18,7 @@ Programação e Desenvolvimento de Software.
 
   - Instagram:
 
-      - https://www.instagram.com/henriquers.dev
+      - https://www.instagram.com/henriquesiqueira.dev
 
       - https://www.instagram.com/henriqueerss
   
